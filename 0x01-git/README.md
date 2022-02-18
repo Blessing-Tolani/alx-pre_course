@@ -1,1 +1,1 @@
-A new directory
+Collaboration: be up to date
